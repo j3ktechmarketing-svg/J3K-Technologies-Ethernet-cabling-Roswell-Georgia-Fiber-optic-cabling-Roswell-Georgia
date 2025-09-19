@@ -3,7 +3,7 @@
 Professional Ethernet cabling, fiber optic cabling, and business cabling services in Roswell, Georgia by J3K Technologies. Build a fast, reliable, and future-ready network infrastructure for your company.
 # Professional Cabling Solutions for Businesses in Roswell, Georgia  
 
-In today’s fast-paced business environment, connectivity is no longer a luxury—it is a necessity. From sending emails to hosting cloud applications, every organization depends on reliable and high-speed networks. That’s why J3K Technologies delivers professional cabling solutions designed to meet the unique needs of businesses in Roswell, Georgia.  
+In today’s fast-paced business environment, connectivity is no longer a luxury-it is a necessity. From sending emails to hosting cloud applications, every organization depends on reliable and high-speed networks. That’s why J3K Technologies delivers professional cabling solutions designed to meet the unique needs of businesses in Roswell, Georgia.  
 
 Our services cover a wide range of network infrastructure requirements, including **Ethernet cabling**, **fiber optic cabling**, and complete **business cabling solutions**. With more than a decade of experience, we ensure that your company benefits from a strong foundation that supports productivity, growth, and technological advancement.  
 
