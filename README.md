@@ -66,7 +66,7 @@ What sets us apart:
 - **Customized solutions** for small businesses, enterprises, and commercial facilities  
 - **Future-ready designs** that accommodate evolving technology  
 - **Commitment to quality** through reliable products and best practices  
-- **Customer-focused service** to ensure smooth, efficient installations  
+- **Customer-focused service** to ensure smooth, efficient installations.  
 
 ---
 
